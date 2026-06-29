@@ -1,4 +1,4 @@
-# 
+# Automatique GitHub Desktop flux de travail pour Mac OS | Sécurisé GitHub Desktop flux de travail pour PC Windows. Avec plan d'exécution et outils de build — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
